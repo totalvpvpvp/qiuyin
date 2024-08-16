@@ -8,7 +8,7 @@
 
 通过蚯蚓机场提供的服务器节点，可以在中国大陆及世界各地访问Google，Instagram，Facebook，观看YouTube，Netflix，使用telegram，WhatsApp等网站或APP。
 
-新用户免费体验2天，先试用再购买。111111
+新用户免费体验2天，先试用再购买。1111111
 
 ## 蚯蚓机场优惠码
 
